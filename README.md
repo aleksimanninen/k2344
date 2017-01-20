@@ -9,3 +9,6 @@ Now that there is the Tec-9, a crappy spray gun from South Miami. This gun is ad
 #####Alaotsikko
 
 [Samuel L Jackson wiki-sivut](https://fi.wikipedia.org/wiki/Samuel_L._Jackson)
+
+
+![](https://www.google.fi/search?q=samuel+l+jackson&espv=2&biw=1680&bih=944&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjryabaq9DRAhVLiSwKHcC4CgQQ_AUIBigB#imgrc=tj6eSDV6uKGkrM%3A)
